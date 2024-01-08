@@ -1,2 +1,4 @@
 # Kyung-Jun-s-Children
-경준이와 아이들
+Noob
+
+배고프다 진짜루
